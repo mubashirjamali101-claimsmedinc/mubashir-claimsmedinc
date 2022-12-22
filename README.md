@@ -1,3 +1,3 @@
-## 👋 Hi, I’m Mubashir (@mubashir-claimsmedinc)
+- 👋 Hi, I’m Mubashir (@mubashir-claimsmedinc)
 
-## Follow me at [@mubashirjamali101](https://github.com/mubashirjamali101)
+### My real account [@mubashirjamali101](https://github.com/mubashirjamali101)
